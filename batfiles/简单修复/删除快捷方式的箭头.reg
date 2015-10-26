@@ -1,0 +1,5 @@
+REGEDIT4;删除快捷方式的箭头[HKEY_CLASSES_ROOT\lnkfile]
+"IsShortcut"=-
+
+[HKEY_CLASSES_ROOT\piffile]
+"IsShortcut"=-
