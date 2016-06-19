@@ -1,3 +1,5 @@
+##构建状态
+[![Build Status](https://travis-ci.org/megatontech/ThankYouSenpai.svg?branch=master)](https://travis-ci.org/megatontech/ThankYouSenpai)
 # ThankYouSenpai
 essential tools for sovling computer failure电脑修得好 好人当到老
 心情不好时就来看一看ACFUN江湖风云录吧
