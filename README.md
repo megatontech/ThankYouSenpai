@@ -226,4 +226,26 @@ essential tools for sovling computer failure电脑修得好 好人当到老（�
 <a class="ac title btn" data-aid="2775172" href="http://www.acfun.cn/a/ac2775172" target="_blank"><i class="icon icon-play-circle"></i>ac2775172</a>
 
 离婚发现儿子非亲生&nbsp;要求赔偿精神抚慰金
-&nbsp;<a class="ac title btn" data-aid="2782335" href="http://www.acfun.cn/a/ac2782335" target="_blank"><i class="icon icon-play-circle"></i>ac2782335</a>
+<a class="ac title btn" data-aid="2782335" href="http://www.acfun.cn/a/ac2782335" target="_blank"><i class="icon icon-play-circle"></i>ac2782335</a>
+
+
+丈夫抓奸妻子被杀 情人自杀
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac12046221" target="_blank"><i class="icon icon-play-circle"></i>ac12046221</a>
+
+新婚少妇偷情 生下同母异父双胞胎！
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac1862557" target="_blank"><i class="icon icon-play-circle"></i>ac1862557</a>
+印尼72岁老汉娶23岁女学生，彩礼花费75万元，结婚9个月却因女方出轨离婚
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac12045866" target="_blank"><i class="icon icon-play-circle"></i>ac12045866</a>
+丈夫发现重度抑郁的妻子家中暴毙，警方在婚外男友身上搜出一包老鼠药
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac12041034" target="_blank"><i class="icon icon-play-circle"></i>ac12041034</a>
+妻子为人代孕却出轨委托人，丈夫跟踪后拿出了美工刀
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac12033091" target="_blank"><i class="icon icon-play-circle"></i>ac12033091</a>
+墨西哥男子发现19岁妻子出轨，开枪将其打死
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac11955300" target="_blank"><i class="icon icon-play-circle"></i>ac11955300</a>
+印度男子出国娶了媳妇，让母亲杀死留在国内交往十年的女友
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac11908704" target="_blank"><i class="icon icon-play-circle"></i>ac11908704</a>
+美国女麻醉师搞婚外情，惹未婚夫大怒，结局：夫妻双双遭小三割喉
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac11907769" target="_blank"><i class="icon icon-play-circle"></i>ac11907769</a>
+夫妻俩广饶务工，男方被戴“绿帽子”还被告上法院？
+<a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/ac11891965" target="_blank"><i class="icon icon-play-circle"></i>ac11891965</a>
+<!-- <a class="ac title btn" data-aid="" href="http://www.acfun.cn/a/" target="_blank"><i class="icon icon-play-circle"></i></a> -->
